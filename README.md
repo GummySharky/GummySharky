@@ -22,7 +22,7 @@ Ultra Magnus my beloved - lowkey my favourite transformer fr fr
 - Comics and figures - I love to yap about them
 - Art
 - Books - particularly involving nautical shenanigans but general science fiction and fantasy is great too
-- ISH - particularly sharks - I am proud to announce that I had a marine biology phase - If you like or know anything about marine creatures then please come yap to me about it <3
+- FISH - particularly sharks - I am proud to announce that I had a marine biology phase - If you like or know anything about marine creatures then please come yap to me about it <3
 - Hundreds of other things I can't be bothered to list
 
 Don't be afraid to come interact even if you don't share these interests ^.^
